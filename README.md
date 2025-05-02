@@ -1,0 +1,3 @@
+Suddenly, I'm not half the man I used to be
+There's a shadow hanging over me
+Oh, yesterday came suddenly
